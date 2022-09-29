@@ -1,11 +1,12 @@
 ![Capture2](https://user-images.githubusercontent.com/108902579/193142426-a8564c36-9e80-4a30-9c3e-22bbf0dc03f6.PNG)
 
 SEE MY STORY HERE: 
+
 []()
+
 OR,JUST CONTINUE TO WITH MY #STUPIDSONGFROM THE BATHROOM_EP.
 
-## LISTEN ON: Click
-
+## LISTEN ON: 
 [SoundCloud](https://soundcloud.app.goo.gl/uLJVtB1EwsnD79AH9)
 
 [Audiomack](https://audiomack.com/embed/fomabriggs/song/olopa0)
@@ -26,14 +27,16 @@ And finally, #Dancewithme expresses myself believe on my musical talent/ creativ
 
 
 ### Feel free to connect
-[YouTube](https://www.youtube.com/channel/UCNTJ0XioxmsKGRnaGLQIVpw) 
-[Twitter](https://twitter.com/fomabriggs/) 
-[Instagram](www.instagram.com/fomabriggs/) 
+[YouTube](https://www.youtube.com/channel/UCNTJ0XioxmsKGRnaGLQIVpw)
+
+[Twitter](https://twitter.com/fomabriggs/)
+
+[Instagram](www.instagram.com/fomabriggs/)
+
 [Gmail](okiotorbriggs@gmail.com)
 
 
-♥️
-ONE LOVE ♥️
+♥️ ONE LOVE ♥️
 
 
 
