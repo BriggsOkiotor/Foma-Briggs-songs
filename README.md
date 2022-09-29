@@ -25,8 +25,14 @@ The Ep is also fleshed-up by a vocal flex,(fun/merriment track) #wotowoto explai
 And finally, #Dancewithme expresses myself believe on my musical talent/ creativity to propel just anybody, anywhere or any time to dance with me when I drop song.
 
 
+### Feel free to connect
+[YouTube](https://www.youtube.com/channel/UCNTJ0XioxmsKGRnaGLQIVpw) 
+[Twitter](https://twitter.com/fomabriggs/) 
+[Instagram](www.instagram.com/fomabriggs/) 
+[Gmail](okiotorbriggs@gmail.com)
 
-
+:LOVE:
+ONE LOVE
 
 
 
