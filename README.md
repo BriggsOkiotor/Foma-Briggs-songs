@@ -2,7 +2,7 @@
 
 SEE MY STORY HERE: 
 
-[]()
+[My story](https://briggsokiotor.github.io/Foma-Briggs-story/)
 
 OR, JUST CONTINUE TO WITH MY
 # STUPID SONG FROM THE BATHROOM_EP.
