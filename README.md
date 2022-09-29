@@ -1,15 +1,17 @@
-![Capture](https://user-images.githubusercontent.com/108902579/193142494-f0e975a4-f02d-485c-a175-5151c7f72ff0.PNG)
-
 ![Capture2](https://user-images.githubusercontent.com/108902579/193142426-a8564c36-9e80-4a30-9c3e-22bbf0dc03f6.PNG)
 
 SEE MY STORY HERE: 
 []()
 OR,JUST CONTINUE TO WITH MY #STUPIDSONGFROM THE BATHROOM_EP.
+
 ##LISTEN ON: Click
+
 [SoundCloud](https://soundcloud.app.goo.gl/uLJVtB1EwsnD79AH9)
 
 [Audiomack](https://audiomack.com/embed/fomabriggs/song/olopa0
-Ep Background 
+
+###Ep Background
+
 The “testing the microphone” half of an album is my first ever lyrical body of work. Lyrically expressing my struggles and setbacks as a result of #parentalmisguidiancelovfuly . Being just a bathroom performing artist for a long time. How I toggled thru decision making of being a career person & a #bathroomartist to become a proper recording and performing Afro beats artist.
 
 As an individual who has suffered untold struggles  that has majorly brought about delay, some level of #Grace is needed to catch up with all of the wasted time, because grace they say is an unmerited favor that checkmates labor. 
