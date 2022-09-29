@@ -1,6 +1,6 @@
 ![Capture](https://user-images.githubusercontent.com/108902579/193142494-f0e975a4-f02d-485c-a175-5151c7f72ff0.PNG)
 
-![Capture2](https://user-images.githubusercontent.com/108902579/193142426-a8564c36-9e80-4a30-9c3e-22bbf0dc03f6.PNG
+![Capture2](https://user-images.githubusercontent.com/108902579/193142426-a8564c36-9e80-4a30-9c3e-22bbf0dc03f6.PNG)
 
 SEE MY STORY HERE: 
 []()
