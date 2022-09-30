@@ -15,7 +15,7 @@ SEE MY STORY HERE:
 ### Ep Background
 
 The “testing the microphone” half of an album is my first ever lyrical body of work. Lyrically expressing my struggles and setbacks as a result of 
-==Parental Misguidiance Lovefully==.
+ ==Parental Misguidiance Lovefully==.
 Being just a bathroom performing artist for a long time. How I toggled thru decision making of being a career person & a #bathroomartist to become a proper recording and performing Afro beats artist.
 
 As an individual who has suffered untold struggles  that has majorly brought about delay, some level of #Grace is needed to catch up with all of the wasted time, because grace they say is an unmerited favor that checkmates labor. 
