@@ -37,7 +37,7 @@ And finally, #Dancewithme expresses myself believe on my musical talent/ creativ
 
 [Instagram](www.instagram.com/fomabriggs/)
 
-[Gmail](okiotorbriggs@gmail.com)
+[Gmail](okiotorbriggs@gmail.com) okiotorbriggs@gmail.com
 
 
 ♥️ ONE LOVE ♥️
