@@ -14,21 +14,27 @@ SEE MY STORY HERE:
 
 ### Ep Background
 
-The “testing the microphone” half of an album is my first ever lyrical body of work. Lyrically expressing my struggles and setbacks as a result of 
+The “testing the microphone” half of an album (EP) should be my first ever lyrical body of work. Lyrically expressing my struggles and setbacks as a result of 
 Parental Misguidiance Lovefully.
 
-Being just a bathroom performing artist for a long time. How I toggled thru decision making of being a career person & a #bathroomartist to become a proper recording and performing Afro beats artist.
+Being just a bathroom performing artist for a long time and how I toggled thru decision making of being a career person & a #bathroomartist to become a recording and performing Afro beats artist.
 
-As an individual who has suffered untold struggles  that has majorly brought about delay, some level of #Grace is needed to catch up with all of the wasted time, because grace they say is an unmerited favor that checkmates labor. 
+As an individual who has suffered untold struggles  that has majorly brought about delay, some level of #Grace is needed to catch up with all of the wasted time, because grace they say is an unmerited favor that checkmates labor and set you apart restoring time. 
 Accompanied in this Ep project is my first ever recorded studio song project
 
 ![Capture3](https://user-images.githubusercontent.com/108902579/193143630-e5d3e07f-14f6-439f-a0ee-8a81f40e42b2.PNG)
 
-Olopa A commemoration song of a tragic event "October 20/2020 Lekki mascara" that claimed the lives of tens of Nigeria youth who was protesting peacefully and harmlessly for an end to police (olopa) brutality experienced in all parts of the country and a righteous plea for good governance, even with the national flag on their hands as they were shot dead without explanation or acknowledgement. How this mayhem shot down the economy of the country for weeks affecting the National GDP very negatively and the government reputation before other nations, globally.
-“Olopa” fosters the need to always speak up just to remind the government of that tragic event of Oct. 20/2020. And that power actually belongs to the people (the youth), regardless. And that power too can destroy the holder and the owner if mismanaged. 
-The Ep is also fleshed-up by a vocal flex,(fun/merriment track) #wotowoto explaining and confirming my sexual stamina. 
-And finally, #Dancewithme expresses myself believe on my musical talent/ creativity to propel just anybody, anywhere or any time to dance with me when I drop song.
+The EP opens with "Olopa," a powerful and commemorative song about the tragic events of October 20, 2020. This track is a solemn tribute to the Nigerian youth who lost their lives at the Lekki Toll Gate. They were peaceful protesters, advocating for an end to police brutality (referred to as "olopa") and demanding good governance. Shot without warning or official acknowledgment, even as they held the national flag, their deaths sent shockwaves through the country. This song is a reminder of the devastating impact of that day, which paralyzed Nigeria's economy for weeks and severely damaged the government's global reputation.
 
+"Olopa" is a steadfast call to action, urging people to never stop speaking up and to keep the memory of October 20, 2020, alive. It underscores the belief that true power resides with the people, especially the youth, and serves as a powerful warning that power, if mismanaged, can ultimately be the downfall of those who hold it.
+
+The EP's narrative also shows a different sides of expression.
+
+"#wotowoto" A vibrant and celebratory track that serves as a vocal flex. It's a fun, high-energy song that confidently expresses and confirms sexual my stamina.
+
+"#Dancewithme" A testament to my musical talent and creative vision. The song is a declaration of confidence in his ability to create music so compelling that it can get anyone, anywhere, to dance.
+
+The EP concludes with "#Shege," a hard-hitting amapiano track. This song speaks to the untold challenges, pain, faced. Yet, despite all the setbacks and negativity, "#Shege" is about choosing to party and celebrate life regardless of the hardship. It's an anthem of resilience and a refusal to be broken and remain downcasted.
 
 ### Feel free to connect
 [YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
