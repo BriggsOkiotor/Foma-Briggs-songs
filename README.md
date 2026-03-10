@@ -2,16 +2,12 @@
 
 SEE MY STORY HERE: [My story](https://briggsokiotor.github.io/Foma-Briggs-story/)
 
->OR, Continue to my stupid song
-# STUPID SONG FROM THE BATHROOM_EP.
-
-## LISTEN ON: 
+>OR, Continue to my stupid song. Listen on: 
 [SoundCloud](https://soundcloud.app.goo.gl/uLJVtB1EwsnD79AH9)
-
 [Audiomack](https://audiomack.com/embed/fomabriggs/song/olopa0)
 
 ### EP Background: Testing the Microphone with "Olopa"
-"Testing the Microphone Ep (STUPID SONG FROM THE BATHROOM_EP) should be my the first Ep/Album project, where I stepped out of the shadows to document my reality.
+Testing the Microphone Ep (STUPID SONG FROM THE BATHROOM_EP) should be my the first Ep/Album project, where I stepped out of the shadows to document my reality.
 
 For years, I was a 'bathroom performing artist,' a creator in hiding. I was caught in a tug-of-war between a traditional career path and the rhythmic pull of Afrobeats that flow from within on auto pilot. This internal conflict was rooted in Parental Misguidance (motivated by love)—the well-meaning pressure to play it safe that ultimately delayed my manifestation.
 
@@ -32,7 +28,7 @@ EP Narrative: The Pulse of Resilience
 The project opens with a solemn weight. "Olopa" is a commemorative tribute to the Nigerian youth who stood at the Lekki Toll Gate on October 20, 2020. Armed only with the national flag and a demand for good governance, they were met with a silence-shattering violence that paralyzed the nation and stained the government’s global standing. "Olopa" is more than a song; it is a steadfast call to action. It serves as a reminder that true power resides with the people and warns that power, when mismanaged, becomes the architect of its own downfall.
 
 2. "#Wotowoto" – The Vocal Flex
-Shifting the narrative, "#Wotowoto" is a high-energy display of confidence. It is a celebratory track that serves as a vocal flex, leaning into a bold, unapologetic expression of personal stamina and charisma. It represents the "After-Hours" energy of a man who knows his worth.
+Shifting the narrative, "#Wotowoto" is a high-energy display of confidence. It is a celebratory track that serves as a vocal flex, leaning into a bold, unapologetic expression of personal sexual stamina and charisma. It represents the "After-Hours" energy of a man who knows his sexual worth.
 
 3. "#Dancewithme" – The Creative Vision
 This track is a declaration of musical authority. "#Dancewithme" is a testament to my ability to engineer sound that is undeniable. It is a confident promise: no matter the setting, the vibration of the music is powerful enough to move anyone, anywhere. It is the sound of a 925er™ dominating the studio.
