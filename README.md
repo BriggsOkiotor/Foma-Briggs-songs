@@ -4,7 +4,7 @@ SEE MY STORY HERE: [My story](https://briggsokiotor.github.io/Foma-Briggs-story/
 
 >OR, Continue to my stupid song. Listen on: [Spotify](https://open.spotify.com/album/3XKAj5V5WQd8Z8DD10GCpH?si=ffHwJrd-T6u6rgz_BnnWUw) [Audiomack](https://audiomack.com/foma-briggs/song/shege?share-user-id=25231800)
 
-### EP Background: Testing the Microphone with "Olopa"
+# Testing the Microphone
 Testing the Microphone Ep (STUPID SONG FROM THE BATHROOM_EP) should be my the first Ep/Album project, where I stepped out of the shadows to document my reality.
 
 For years, I was a 'bathroom performing artist,' a creator in hiding. I was caught in a tug-of-war between a traditional career path and the rhythmic pull of Afrobeats that flow from within on auto pilot. This internal conflict was rooted in Parental Misguidance (motivated by love)—the well-meaning pressure to play it safe that ultimately delayed my manifestation.
@@ -39,6 +39,7 @@ Expanding the narrative beyond Nigeria, the title track serves as a cross-cultur
 
 4. "#Shege" – The Anthem of the Unbroken
 The EP concludes with the hard-hitting Amapiano energy of "#Shege." This track documents the untold pain and systemic setbacks I have faced. Yet, instead of surrendering to the hardship, "#Shege" chooses the dancefloor. It is an anthem of defiance—a refusal to remain downcast. It proves that even after the "Shege" of life, we still choose to party, celebrate, and rise.
+
 ![Shege](https://github.com/user-attachments/assets/e2d6ffb9-0798-4583-a3a7-1994f434d345)
 
 
