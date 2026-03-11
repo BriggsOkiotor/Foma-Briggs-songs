@@ -7,7 +7,7 @@ SEE MY STORY HERE: [My story](https://briggsokiotor.github.io/Foma-Briggs-story/
 # Testing the Microphone
 Testing the Microphone Ep (STUPID SONG FROM THE BATHROOM_EP) should be my the first Ep/Album project, where I stepped out of the shadows to document my reality.
 
-For years, I was a 'bathroom performing artist,' a creator in hiding. I was caught in a tug-of-war between a traditional career path and the rhythmic pull of Afrobeats that flow from within on auto pilot. This internal conflict was rooted in Parental Misguidance (motivated by love)—the well-meaning pressure to play it safe that ultimately delayed my manifestation.
+For years, I was a 'bathroom performing artist,' a creator in hiding. I was caught in a tug-of-war between a traditional career path and the rhythmic pull of Afrobeats that flow from within on auto pilot. This internal conflict was rooted in Parental Misguidance (motivated by love) the well-meaning pressure to play it safe that ultimately delayed my manifestation.
 
 https://github.com/user-attachments/assets/e7d7f1da-6a41-445c-b985-705c48446b99
 
@@ -18,14 +18,14 @@ I have walked through the fire of untold struggle, delays, and systemic limitati
 
 The ultimate irony of my journey reached its peak on October 20, 2020. While the nation cried out to end police brutality during the #ENDSARS protests, I was actively serving that same government under the NYSC scheme right there in Kauru Kaduna. Standing at that crossroads of duty and conscience, I chose solidarity.
 
-I funneled that disgust and pain into my first-ever studio project: 'Olopa.' More than just a song, it was a commemoration of our collective struggle and a defiant stand against the forces that seek to bury the voices of the people. It was my first 'shot' at using my craft to document history." Written on on October 20, 2020, released on October 29, 2022
+I funneled that disgust and pain into my first-ever studio project: 'Olopa.' More than just a song, it was a commemoration of our collective struggle and a defiant stand against the forces that seek to bury the voices of the people. It was my first 'shot' at using my craft to document history." Written on on October 20, 2020, and released on October 29, 2022
 
 ![Capture3](https://user-images.githubusercontent.com/108902579/193143630-e5d3e07f-14f6-439f-a0ee-8a81f40e42b2.PNG)
 
 > EP Narrative: The Pulse of Resilience
 1. ### "#Olopa" – The Foundation of Conscience
 
-The project opens with a solemn weight. "Olopa" is a commemorative tribute to the Nigerian youth who stood at the Lekki Toll Gate on October 20, 2020. Armed only with the national flag and a demand for good governance, they were met with an unthinkable escalation of violence that paralyzed the nation and stained the government’s global standing. "Olopa" is more than a song; it is a steadfast call to action, urging us to keep the memory alive. It serves as a reminder to those in power that true authority resides with the people. It is a warning that power, when mismanaged, eventually becomes the architect of its own downfall.
+The project, "Olopa" is a commemorative tribute to the Nigerian youth who stood at the Lekki Toll Gate on October 20, 2020. Armed only with the national flag and a demand for good governance, they were met with an unthinkable escalation of violence that paralyzed the nation and stained the government’s global standing. "Olopa" is more than a song; it is a steadfast call to action, urging us to keep the memory alive. It serves as a reminder to those in power that true authority resides with the people. It is a warning that power, when mismanaged, eventually becomes the architect of its own downfall.
 ![Olopa](https://github.com/user-attachments/assets/f4bdac0f-1ddb-431b-8201-eb3e61923213)
 
 2. ### "#Wotowoto" – The Vocal Flex
