@@ -2,9 +2,7 @@
 
 SEE MY STORY HERE: [My story](https://briggsokiotor.github.io/Foma-Briggs-story/)
 
->OR, Continue to my stupid song. Listen on: 
-[Spotify]([https://soundcloud.app.goo.gl/uLJVtB1EwsnD79AH9](https://open.spotify.com/album/3XKAj5V5WQd8Z8DD10GCpH?si=ffHwJrd-T6u6rgz_BnnWUw))
-[Audiomack]([https://audiomack.com/embed/fomabriggs/song/olopa0](https://audiomack.com/foma-briggs/song/shege?share-user-id=25231800))
+>OR, Continue to my stupid song. Listen on: [Spotify](https://open.spotify.com/album/3XKAj5V5WQd8Z8DD10GCpH?si=ffHwJrd-T6u6rgz_BnnWUw) [Audiomack](https://audiomack.com/foma-briggs/song/shege?share-user-id=25231800)
 
 ### EP Background: Testing the Microphone with "Olopa"
 Testing the Microphone Ep (STUPID SONG FROM THE BATHROOM_EP) should be my the first Ep/Album project, where I stepped out of the shadows to document my reality.
@@ -32,9 +30,9 @@ The project opens with a solemn weight. "Olopa" is a commemorative tribute to th
 
 2. ### "#Wotowoto" – The Vocal Flex
 Shifting the narrative, "#Wotowoto" is a high-energy display of confidence. It is a celebratory track that serves as a vocal flex, leaning into a bold, unapologetic expression of personal sexual stamina and charisma. It represents the "After-Hours" energy of a man who knows his sexual worth.
+![Wotowoto](https://github.com/user-attachments/assets/c49f5d61-d72c-434b-8d89-7a32c00c3a31)
 
 3. ### "#Dancewithme" – The Creative Vision
-
 This track is a declaration of musical authority. "#Dancewithme" is a testament to my ability to engineer sound that is undeniable. It is a confident promise: no matter the setting, the vibration of my music is powerful enough to move anyone, anywhere. This body of work is a testament to the Afro925er™ standard: when i drop a track, it isn't just a release; it is a star-hit. 
 ![Dance with me](https://github.com/user-attachments/assets/d3407a7e-5da7-41be-ac00-51cdfbb5168d)
 Expanding the narrative beyond Nigeria, the title track serves as a cross-cultural bridge, speaking directly to 12 African nations. It is a masterclass in sonic versatility, weaving together multiple traditional and modern dance themes into a single, irresistible invitation. From the boardroom to the streets of Accra, Nairobi, and Johannesburg, 'Dance With Me' is a global summons for every nation to join the rhythm. It proves that my creative vision has no borders.
@@ -47,9 +45,9 @@ The EP concludes with the hard-hitting Amapiano energy of "#Shege." This track d
 ### Feel free to connect
 [YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
 
-[Twitter](https://twitter.com/fomabriggs/)
+[Twitter](https://x.com/fomabriggs)
 
-[Instagram](www.instagram.com/fomabriggs/)
+[Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
 
 [Gmail](okiotorbriggs@gmail.com) okiotorbriggs@gmail.com
 
