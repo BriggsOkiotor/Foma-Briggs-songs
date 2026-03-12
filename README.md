@@ -9,7 +9,7 @@ Testing the Microphone Ep (STUPID SONG FROM THE BATHROOM_EP) should be my the fi
 
 For years, I was a 'bathroom performing artist,' a creator in hiding. I was caught in a tug-of-war between a traditional career path and the rhythmic pull of Afrobeats that flow from within on auto pilot. This internal conflict was rooted in Parental Misguidance (motivated by love) the well-meaning pressure to play it safe that ultimately delayed my manifestation.
 
-https://github.com/user-attachments/assets/e7d7f1da-6a41-445c-b985-705c48446b99
+![Gen Image](https://github.com/user-attachments/assets/fdbf55e3-8fe0-477d-ab37-477f27de2e35)
 
 The EP chronicles that journey: the mental toggle between being a corporate professional and a closeted creative. It is the raw documentation of my evolution from the bathroom to the studio, Till the Afro925™ movement was birthed. (--) This is the sound of a dreamer finally taking his shot."
 
